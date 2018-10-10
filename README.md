@@ -1,6 +1,6 @@
 # The-reason-St-Helens-will-win-the-league-next-year
 
-This repository will explain the reasons saints **will** win the league 
+This repository will explain the reasons saints will win the league 
 
 It has been a painful few weeks for us saints fans after being knocked out of the playoffs and not reaching a deserved grand final place.
 
@@ -18,11 +18,11 @@ So saints fans have to wait another year to see if we can make it to the theatre
 
 Yes Ben Barba and Jon Wilkin are leaving, and yes it still hurts, however we can't dwell as their replacements and a few more faces have decided to join us. The new faces include:
 
-**1) Lachlan Coote
-**2) Kevin Naiqama
-**3) Joseph Paulo
-**4) Joe Batchelor
+1) Lachlan Coote- [Read more here!] (https://www.bbc.co.uk/sport/rugby-league/45679318) 
+2) Kevin Naiqama
+3) Joseph Paulo
+4) Joe Batchelor
 
-With **Lachlan Coote** expected to fill the boots of Barba and a Fijian monster starting at centre it's hard to believe tht saints will be stopped next year. Our youth players that started to sparkle next year and will grow into real professional players this year will shine I'm sure. Players such as: Matty lees, Jack Ashworth, Danny Richardson and even the Hooker (that had just one game) Arron Smith. 
+With **Lachlan Coote** expected to fill the boots of Barba and a Fijian monster with the name of Naiqama starting at centre it's hard to believe tht saints will be stopped next year. Our youth players that started to sparkle next year and will grow into real professional players this year will shine I'm sure. Players such as: Matty lees, Jack Ashworth, Danny Richardson and even the Hooker (that had just one game) Arron Smith. 
 
 With the new signings and the blemishing youths I'm positive that the saints will march all the way to Old Trafford and Wembley to secure both titles.
