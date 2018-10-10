@@ -18,7 +18,7 @@ So saints fans have to wait another year to see if we can make it to the theatre
 
 Yes Ben Barba and Jon Wilkin are leaving, and yes it still hurts, however we can't dwell as their replacements and a few more faces have decided to join us. The new faces include:
 
-1) Lachlan Coote- [Read more here!] (https://www.bbc.co.uk/sport/rugby-league/45679318) 
+1) Lachlan Coote- [Read more here!](https://www.bbc.co.uk/sport/rugby-league/45679318) 
 2) Kevin Naiqama
 3) Joseph Paulo
 4) Joe Batchelor
