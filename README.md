@@ -9,8 +9,11 @@ However... This page will explain the reasons why all is not lost and the how th
 We'll start at past victories: **1999, 2000, 2002, 2006 & 2014**.
 All these victories were special and each time we won we had special players pulling off outragious and courageous skills and plays which meant we had a ighting chance to win. 
 
-However this year we had a very special player named **Ben Barba**. 
-With 25 tries and a man of steel award to his name Benny was outstanding. I even had the privelage of watching him tear Wigan's defence apart on good friday in the 21-18 win. I even managed to get a pictre with him. All season long Benny was suberb and all players and fans had the expectations of reaching the grand final. 
+However this year we had a very special player named **Ben Barba** (pictured below).
+
+![Image of Ben Barba](https://www.google.co.uk/search?safe=off&biw=1366&bih=657&tbm=isch&sa=1&ei=8C2_W5_eB9CXkwXK1aigAQ&q=ben+barba+st+helens+png&oq=ben+barba+st+helens+png&gs_l=img.3...126553.127331.0.128261.4.4.0.0.0.0.126.327.3j1.4.0....0...1c.1.64.img..0.1.121...0i30k1j0i24k1.0.NEVwz4fr0Ws#imgrc=oFmvHBwYnJaOyM:)
+
+With 25 tries and a man of steel award to his name Benny was outstanding. I even had the privelage of watching him tear Wigan's defence apart on good friday in the 21-18 win. All season long Benny was suberb and all players and fans had the expectations of reaching the grand final. 
 
 Unfortunetly it wasn't meant to be as the Warrington Wolves showed up to Langtree Park and taught us a lesson on how to perform on a semi-final night. Tom Lineham's try crushed the hearts of all saints fans as he crashed over the line with just five minuets left to win the match **13-18**.
 
