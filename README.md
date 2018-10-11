@@ -11,7 +11,7 @@ All these victories were special and each time we won we had special players pul
 
 However this year we had a very special player named **Ben Barba**.
 
-![Ben Barba](https://octodex.github.com/umbrellatocat)
+[Ben Barba](https://www.dailymail.co.uk/sport/rugbyunion/article-5723137/Castleford-18-36-St-Helens-Ben-Barba-puts-masterclass-send-Saints-comfortable-victory.html) 
 
 With 25 tries and a man of steel award to his name Benny was outstanding. I even had the privelage of watching him tear Wigan's defence apart on good friday in the 21-18 win. All season long Benny was suberb and all players and fans had the expectations of reaching the grand final. 
 
