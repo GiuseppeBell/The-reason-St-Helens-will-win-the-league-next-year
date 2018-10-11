@@ -1,6 +1,12 @@
 # The-reason-St-Helens-will-win-the-league-next-year and what happened this year
 
-### This year 
+### This year and seasons before
+
+This seasons accomplishments:
+
+- [ ] Challenge cup
+- [x] League leaders shield
+- [ ] Grand Final Victory
 
 It has been a painful few weeks for us saints fans after being knocked out of the playoffs and not reaching a deserved grand final place.
 
@@ -32,4 +38,4 @@ With **Lachlan Coote** expected to fill the boots of Barba and a Fijian monster 
 
 Our youth players really started to sparkle this season with some standout performers such as: Danny Richardson, Matty Lees and Jack Ashworth. Danny Richardson's performance in the halves have been quite fantastic considering this is his first full season in the Super League wearing the red V. His goal kicking and lethal step have been noticable and fantastic to watch. The big new props of Matty Lees and Jack Asworth have also been fantastic, their hard work in defence and punishing runs have been outstanding this season and gave the saints a big boost at the end of the season as they came in to replace the tired legs of the seniors. Some other youngesters we can get exited about watching next season also are: Arron smith, James bentley and Matty costello. These three all made appearnces this season but not enough to make a real impact. However next season they may be given even more of a chance to impress and show the saints fans what they can do. 
 
-With the new signings and the blemishing youths I'm positive that the saints will march all the way to Old Trafford and Wembley to secure both titles.
+With the new signings and the blemishing youths I'm positive that the saints will march all the way to Old Trafford and Wembley to secure all three titles. :trophy: :medal: :rugby ball:
