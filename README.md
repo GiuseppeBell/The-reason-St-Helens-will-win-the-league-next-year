@@ -66,4 +66,4 @@ This shows that over half of the players starting and on the bench are homegrown
 
 With the new signings and the blemishing youths I'm positive that the saints will march all the way to Old Trafford and Wembley to secure all three titles. :trophy: :trophy: :trophy:
 
-[St Helens RLFC Website] (https://www.saintsrlfc.com)
+[St Helens RLFC Website](https://www.saintsrlfc.com)
