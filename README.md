@@ -51,9 +51,13 @@ Our youth players really started to sparkle this season with some standout perfo
 As an example of how well our youth is doing I will cross out the names of the starting thirteen and bench that played against warrington in the semi final that did not come through our academy:
 
 ~~Barba~~, 
+
 Makinson, ~~Morgan~~, Percival, Grace
+
 Richardson, Lomax
+
 ~~Wilkin~~, Knowles, ~~Tai~~
+
 Lees, Roby, Thompson
 
 Bench: ~~Peyroux~~, Ashworth, ~~Douglas~~, ~~Louis Mcarthey Scarsbrooke~~.
