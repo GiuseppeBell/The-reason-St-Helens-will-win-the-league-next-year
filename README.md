@@ -12,8 +12,19 @@ It has been a painful few weeks for us saints fans after being knocked out of th
 
 However... This page will explain the reasons why all is not lost and the how the super league trophy can come home.
 
-We'll start at past victories: **1999, 2000, 2002, 2006 & 2014**.
-All these victories were special and each time we won we had special players pulling off outragious and courageous skills and plays which meant we had a ighting chance to win. 
+We'll start at past victories and defeats where we have reached the grand final:
+
+Grand Final wins | Grand Final losses 
+------------ | -------------
+1999 | 2007
+2000 | 2008
+2002 | 2009
+2006 | 2010
+2014 | 2011
+
+This table shows that we have equally won thegrand final just asmuch aswe have lost it. It also shows that we were terribly unlucky to loose all those times in a row. It was not a good period for Saints fans. 
+
+All these victories however were special and each time we won we had special players pulling off outragious and courageous skills and plays which meant we had a fighting chance to win. 
 
 However this year we had a very special player named **Ben Barba**.
 
