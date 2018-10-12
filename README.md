@@ -21,11 +21,11 @@ Grand Final wins | Grand Final losses
 2006 | 2010
 2014 | 2011
 
-This table shows that we have equally won thegrand final just asmuch aswe have lost it. It also shows that we were terribly unlucky to loose all those times in a row. It was not a good period for Saints fans. 
+This table shows that we have equally won the grand final just as much as we have lost it. It also shows that during the years 2007-2011 we were very unfortunate or maybe just lacked a good team. The Leeds Rhinos won back to back titles 2007-2010 with Wigan beating us in the 2011 final to add insult to injury. It took us a while to recover but we finally managed to win the final again in 2014 despite being serious underdogs.  
 
-All these victories however were special and each time we won we had special players pulling off outragious and courageous skills and plays which meant we had a fighting chance to win. 
+All these past victories were special and each time we won we had special player that was stand out on the pitch. players such as **Jamie Lyon** and **Sean Long** could always turn up to the big games and perform. Sean Long individually won us The Grand Final in 2002!  
 
-However this year we had a very special player named **Ben Barba**.
+This year we had that special player and his name was **Ben Barba**.
 
 [Ben Barba's magic performance](https://www.dailymail.co.uk/sport/rugbyunion/article-5723137/Castleford-18-36-St-Helens-Ben-Barba-puts-masterclass-send-Saints-comfortable-victory.html) 
 
