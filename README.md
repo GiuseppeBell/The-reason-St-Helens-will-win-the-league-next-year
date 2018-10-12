@@ -48,4 +48,16 @@ With **Lachlan Coote** expected to fill the boots of Barba and a Fijian monster 
 
 Our youth players really started to sparkle this season with some standout performers such as: Danny Richardson, Matty Lees and Jack Ashworth. Danny Richardson's performance in the halves have been quite fantastic considering this is his first full season in the Super League wearing the red V. His goal kicking and lethal step have been noticable and fantastic to watch. The big new props of Matty Lees and Jack Asworth have also been fantastic, their hard work in defence and punishing runs have been outstanding this season and gave the saints a big boost at the end of the season as they came in to replace the tired legs of the seniors. Some other youngesters we can get exited about watching next season also are: Arron smith, James bentley and Matty costello. These three all made appearnces this season but not enough to make a real impact. However next season they may be given even more of a chance to impress and show the saints fans what they can do. 
 
+As an example of how well our youth is doing I will cross out the names of the starting thirteen and bench that played against warrington in the semi final that did not come through our academy:
+
+~~Barba~~, 
+Makinson, ~~Morgan~~, Percival, Grace
+Richardson, Lomax
+~~Wilkin~~, Knowles, ~~Tai~~
+Lees, Roby, Thompson
+
+Bench: ~~Peyroux~~, Ashworth, ~~Douglas~~, ~~Louis Mcarthey Scarsbrooke~~.
+
+This shows that over half of the players starting and on the bench are homegrown. This shows great promise for the club. 
+
 With the new signings and the blemishing youths I'm positive that the saints will march all the way to Old Trafford and Wembley to secure all three titles. :trophy: :trophy: :trophy:
