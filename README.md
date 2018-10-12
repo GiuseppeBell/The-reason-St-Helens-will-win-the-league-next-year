@@ -1,5 +1,4 @@
-# The-reason-St-Helens-will-win-the-league-next-year and what happened this year
-
+# St-Helens RLFC Past Present and Future
 ### This year and seasons before
 
 This seasons accomplishments:
