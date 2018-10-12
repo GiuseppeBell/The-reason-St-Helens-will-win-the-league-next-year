@@ -3,6 +3,10 @@
 
 This seasons accomplishments:
 
+I think you should use an
+`<addr>` element here instead.
+
+
 - [ ] Challenge cup
 - [x] League leaders shield
 - [ ] Grand Final Victory
